@@ -1,1 +1,1 @@
-# firstnft-try1
+# firstnft-try1.github.io
